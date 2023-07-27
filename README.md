@@ -8,7 +8,7 @@
 - 📫 How to reach me **srikanthmattevada@gmail.com**
 - ⚡ Fun fact **I think I'm funny**
 - 📄 Know about my experiences [https://www.linkedin.com/in/srikanth-chary-61645096/](https://www.linkedin.com/in/srikanth-chary-61645096/)
-- - 🌱 I’m currently learning **Devopos**
+-  🌱 I’m currently learning **Devopos**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
